@@ -1,4 +1,5 @@
 Effective Date: 3 May 2026
+
 Thank you for using the محمد غانم - As Law Says app!
 This Privacy Policy is designed to help you understand how your personal information is collected, used, and shared when you use the محمد غانم - As Law Says application.
 
